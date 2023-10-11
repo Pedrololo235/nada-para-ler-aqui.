@@ -1,2 +1,1 @@
-# nada-para-ler-aqui.:skull:
-# COMO VOCE CHEGOU AQUI?
+# nada-para-ler-aqui?
